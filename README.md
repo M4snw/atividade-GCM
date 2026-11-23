@@ -1,2 +1,2 @@
 # atividade-GCM
-Repositório destinado a atividade de Gerência de Configurações e Mudanças
+Site direcionado a curiosidades sobre GTA VI, Lore e Segredos além de armas e missões secundárias!
